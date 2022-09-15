@@ -1,4 +1,5 @@
 # Abhinav Mishra<br/>
+![](IMG_0611)
 I am a very hard-working, highly motivated person, who is able to prioritize workloads efficiently and who is constantly trying to learn new skills and better myself. I am always looking out for opportunities to meet new people, make friends and learn different skills. <br/>
 
 ## Experience
@@ -39,4 +40,7 @@ sessions.
 - English
 - Hindi
 
-## Contact Information
+## Contact Information<br/>
+Phone Number: 720-869-7747<br/>
+E-Mail: amishra2@umbc.edu<br/>
+LinkedIn: linkedin.com/in/abhinav-mishra-2495a4171
