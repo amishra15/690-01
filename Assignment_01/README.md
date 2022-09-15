@@ -1,5 +1,5 @@
 # Abhinav Mishra<br/>
-![]()
+![](https://cdn.discordapp.com/attachments/773381159019085838/1019987217227206746/IMG_0611.png) <br/>
 I am a very hard-working, highly motivated person, who is able to prioritize workloads efficiently and who is constantly trying to learn new skills and better myself. I am always looking out for opportunities to meet new people, make friends and learn different skills. <br/>
 
 ## Experience
